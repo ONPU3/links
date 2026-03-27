@@ -3,8 +3,6 @@
 
 [X(Twitter) 競プロ垢](https://x.com/pc_onp "@pc_onp")
 
-[X(Twitter) その他垢](https://x.com/114514_onp "@114514_onp")
-
 [BlueSky](https://bsky.app/profile/onpu.bsky.social "onpu")
 
 [Karotter](https://karotter.com/profile/onpu "onpu")
