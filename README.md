@@ -3,8 +3,6 @@
 
 [X(Twitter) 競プロ垢](https://x.com/pc_onp "@pc_onp")
 
-[X(Twitter)](https://x.com/ONPU31415)
-
 [YouTube 音ゲー垢](https://youtube.com/@user-ot762?si=qLX3xe0lrZkgS-gI)
 ### 音ゲー
 [chunirec](https://chunirec.net/users/ONPU3 "ONPU3")
